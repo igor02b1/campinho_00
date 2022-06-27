@@ -10,4 +10,10 @@ _"tem que ser o macarrão da minha mãe em especifíco"_
 
 
 
+curiosidade sobre mim: 
+
+**adoro jogar jogos de enigmas e exploração**
+![outerwildspick](images.jfif)
+
+
 
